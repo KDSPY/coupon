@@ -1,22 +1,20 @@
 # KDSPY Coupons (May 2025) Get 51% Off Discount Code
 
-[![KDSPY coupons](https://github.com/user-attachments/assets/1f46447f-2d9c-4b76-9398-aabe7330bd78)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
-
 Are you looking for [**KDSPY coupons**](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/) to save 51% on your plan?
 
-[![discount button](https://github.com/user-attachments/assets/27489374-0078-47d3-9efe-3ddc13aea190)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
 
 ## 52% Off KDSPY Coupon
 
 **Get KDSPY now for only $47**, down from $97. This offer includes bonus gifts like free updates, software integrations, Kindle Cheatsheets, videos on building author websites, and a Kindle ROI Tracking Spreadsheet.
 
-[![discount button](https://github.com/user-attachments/assets/27489374-0078-47d3-9efe-3ddc13aea190)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
 
 ## 60-Day Money-Back Guarantee
 
 All purchases include a 60-day money-back guarantee. If you’re not happy with KDSPY, you can ask for a full refund within 60 days of your purchase.
 
-[![discount button](https://github.com/user-attachments/assets/27489374-0078-47d3-9efe-3ddc13aea190)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
 
 ## Available KDSPY Coupons
 
@@ -69,7 +67,7 @@ You may also apply a coupon on top of a bundle, giving you maximum value.
 
 Tip: Always check if your coupon works on bundles. Sometimes, it does.
 
-[![discount button](https://github.com/user-attachments/assets/27489374-0078-47d3-9efe-3ddc13aea190)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
 
 ## How to Redeem a KDSPY Coupon Code?
 
@@ -105,7 +103,7 @@ This is far cheaper than other Kindle tools, which can cost $30–$99 per month.
 
 Using just one KDSPY idea, many users earn back the price in a few days or weeks.
 
-[![discount button](https://github.com/user-attachments/assets/27489374-0078-47d3-9efe-3ddc13aea190)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
 
 ## What Is KDSPY?
 
@@ -180,3 +178,5 @@ KDSPY is a great tool for Kindle publishers. It saves time and helps avoid poor 
 👉 Use a KDSPY coupon today and take the first step toward Kindle publishing success.
 
 Your next bestselling book might just be one keyword away.
+
+[![Discount button](https://github.com/user-attachments/assets/5c3dffc9-fc56-4a86-aa36-a12ed960a730)](https://shadowx--leadsclick.thrivecart.com/kdspy-v5/)
